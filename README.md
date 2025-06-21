@@ -13,4 +13,5 @@ some things i **_like_**, incase you wanna interact! - mlp, fnaf, breaking bad (
 
 ## DNI, DNIUID, AND IWC - WHAT TO DO/WHAT DOES THIS MEAN?
 DNI - do not interact | DNIUID - do not interact _unless i do._ = in these cases, please do not try to talk to me, boop/kiss, or sit right beside me. i'm probably upset or overwhelmed. "why don't you just leave the game if you're overwhelmed?" - because i _want_ to keep playing. i just need some time to destress.
+
 | IWC - interact with caution = you can talk to me unless i explicitly say otherwise, and you can also boop me and sit near me.
