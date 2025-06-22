@@ -1,7 +1,7 @@
 ## ⚠️ please read this if you don't feel like looking through my strawpage, carrd, or pronouns.cc pages.
 (I KNOW it looks long. but this is essentially all three of those websites' information compressed.)
 
-i go by a lot of ***names*** - *including the names of characters i like because it makes me **happy***. fabian, wolf/wolfeiier, jesse, astro, mipha - also, the name of whatever pony i am
+i go by a lot of ***names*** - *including the names of characters i like because, why the hell not? fabian, wolf/wolfeiier, jesse, astro, mipha - also, the name of whatever pony i am
 
 here are my ***pronouns***. he/him & they/them. i don't like it/its or neopronouns because it *personally* feels dehumanizing. you can also use the pronouns of my skin. idrc in that case.
 
