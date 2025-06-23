@@ -1,8 +1,6 @@
 ## ⚠️ please read this if you don't feel like looking through my [strawpage](https://interestarchive.straw.page), [carrd](https://interestarchive.carrd.co), or [pronouns.cc](https://pronouns.cc/@wolfeier) pages.
 (I KNOW it looks long. but this is essentially all three of those websites' information compressed.)
 
-![BACKGROUND](https://github.com/user-attachments/assets/e6841a0d-b844-43d4-8743-57d13dfe15aa)
-
 i go by a lot of ***names*** - *including the names of characters i like because, why the hell not?* fabian, wolf/wolfeiier, jesse, astro, mipha - also, the name of whatever pony i am
 
 here are my ***pronouns***. he/him & they/them. i don't like it/its or neopronouns because it *personally* feels dehumanizing (and i consider my humanity to be a very important aspect of my own life). you can also use the pronouns of my pony/cosplay. idrc in that case.
@@ -17,3 +15,5 @@ some things i **_like_**, incase you wanna interact! - mlp, fnaf, breaking bad (
 DNI - do not interact | DNIUID - do not interact _unless i do._ = in these cases, please do not try to talk to me, boop/kiss, or sit right beside me. i'm probably upset or overwhelmed. "why don't you just leave the game if you're overwhelmed?" - because i _want_ to keep playing. i just need some time to destress.
 
 IWC - interact with caution = you can talk to me unless i explicitly say otherwise, and you can also boop me and sit near me.
+![astro's room](https://github.com/user-attachments/assets/ccad545e-9b2b-4539-86fd-3ab1253cb4b6)
+
