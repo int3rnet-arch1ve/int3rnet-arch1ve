@@ -1,4 +1,4 @@
-## ⚠️ please read this if you don't feel like looking through my strawpage, carrd, or pronouns.cc pages.
+## ⚠️ please read this if you don't feel like looking through my [strawpage](https://interestarchive.straw.page), [carrd](https://interestarchive.carrd.co), or [pronouns.cc](https://pronouns.cc/@wolfeier) pages.
 (I KNOW it looks long. but this is essentially all three of those websites' information compressed.)
 
 i go by a lot of ***names*** - *including the names of characters i like because, why the hell not?* fabian, wolf/wolfeiier, jesse, astro, mipha - also, the name of whatever pony i am
