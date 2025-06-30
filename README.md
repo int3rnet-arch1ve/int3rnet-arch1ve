@@ -1,5 +1,5 @@
 ## ⚠️ please read this if you don't feel like looking through my [strawpage](https://interestarchive.straw.page), [carrd](https://interestarchive.carrd.co), or [pronouns.cc](https://pronouns.cc/@wolfeier) pages.
-
+# FYI I OFTEN DONT CHAT - **EVEN WITH FRIENDS**. "🚫💬" in my name = not chatting
 **_DNI_** if any of these apply: racist, homophobic, transphobic, basically general criteria, darkshippers/proshippers, ableist, zionist...................
           ^^ EDITED BECAUSE APPARENTLY I WAS MISINFORMED ABOUT THE MEANING OF "COMSHIPPER"
 
