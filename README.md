@@ -3,9 +3,9 @@
 **_DNI_** if any of these apply: racist, homophobic, transphobic, basically general criteria, darkshippers/proshippers, ableist, zionist
 ^^ EDITED BECAUSE APPARENTLY I WAS MISINFORMED ABOUT THE MEANING OF "COMSHIPPER"
 
-i go by a lot of ***names*** - *including the names of characters i like because, why the hell not?* fabian, wolf/wolfeiier, jesse, astro, mipha - also, the name of whatever pony i am
+i go by a lot of ***names*** - *including the names of characters i like :P* | fabian, wolf/wolfeiier, jesse, astro, mipha, sprout - also, the name of whatever pony i am
 
-here are my ***pronouns***. he/him & they/them. i don't like it/its or neopronouns because it *personally* feels dehumanizing (and i consider my humanity to be a very important aspect of my own life). you can also use the pronouns of my pony/cosplay. idrc in that case.
+here are my ***pronouns***. he/him & they/them + neopronouns (yeah i changed my mind abt them, you can find the list on my carrd once it's updated ✌️). i don't like it/its because it *personally* feels dehumanizing (and i consider my humanity to be a very important aspect of my own life). you can also use the pronouns of my pony/cosplay. idrc in that case.
 
 things to know ***before you interact***: i am neurodivergent. i struggle with social cues, sarcasm, and the like. _please_ use **tone tags** if you think it may be necessary. i dont like gross/rude/dark humour. i get overwhelmed when there are a lot of players (yes. i know it's a "pixel horse game"). anyone >18 and <12 can interact. but you cannot ask for my socials outside of ponytown.
 
