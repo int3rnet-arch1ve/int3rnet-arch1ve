@@ -1,6 +1,6 @@
 ## ⚠️ please read this if you don't feel like looking through my [strawpage](https://interestarchive.straw.page), [carrd](https://interestarchive.carrd.co), or [pronouns.cc](https://pronouns.cc/@wolfeier) pages.
 
-**_DNI_** if any of these apply: racist, homophobic, transphobic, basically general criteria, darkshippers/proshippers, ableist, zionist........
+**_DNI_** if any of these apply: racist, homophobic, transphobic, basically general criteria, darkshippers/proshippers, ableist, zionist...................
           ^^ EDITED BECAUSE APPARENTLY I WAS MISINFORMED ABOUT THE MEANING OF "COMSHIPPER"
 
 i go by a lot of ***names*** - *including the names of characters i like :P* | fabian, wolf/wolfeiier, jesse, astro, mipha, sprout, link, cosmo/cosmos - also, the name of whatever pony i am :P
