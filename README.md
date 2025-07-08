@@ -1,5 +1,5 @@
 
-## FYI: I OFTEN DONT CHAT - *EVEN WITH FRIENDS*. if i have "chat=❌" in my name = not chatting often or at all
+## FYI: I DONT OFTEN CHAT - *EVEN WITH FRIENDS*. if i have "chat=❌" in my name = not chatting often or at all
 ![je](https://github.com/user-attachments/assets/8f583db6-a405-4073-be60-59ca0721236a)
 
 im shaking pls buy him brown contacts _/silly_
