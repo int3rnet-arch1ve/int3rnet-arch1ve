@@ -2,7 +2,7 @@
 ## FYI I OFTEN DONT CHAT - **EVEN WITH FRIENDS**. if i have "chat=❌" in my name = not chatting
 ![je](https://github.com/user-attachments/assets/8f583db6-a405-4073-be60-59ca0721236a)
 
-im shaking pls by him brown contacts _/silly_
+im shaking pls buy him brown contacts _/silly_
 
 .
 
