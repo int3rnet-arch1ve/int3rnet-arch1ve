@@ -1,8 +1,8 @@
 
 ## FYI I OFTEN DONT CHAT - **EVEN WITH FRIENDS**. if i have "chat=❌" in my name = not chatting
-![sorout2](https://github.com/user-attachments/assets/2fe11792-576c-444e-a87b-54a519761707)
+![416e2e391bf7cbd1336dfbbcdccab880-removebg-preview](https://github.com/user-attachments/assets/ed6292fa-6d05-41ea-b6e0-53ce4028e5c5)
 
-look at my son auuughhhhh 😭😭😭
+im shaking pls by him brown contacts _/silly_
 
 .
 
