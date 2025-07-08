@@ -1,6 +1,6 @@
 
 ## FYI I OFTEN DONT CHAT - **EVEN WITH FRIENDS**. if i have "chat=❌" in my name = not chatting
-![416e2e391bf7cbd1336dfbbcdccab880-removebg-preview](https://github.com/user-attachments/assets/ed6292fa-6d05-41ea-b6e0-53ce4028e5c5)
+![jeese](https://github.com/user-attachments/assets/8c6cd31b-8fa9-4a62-831d-9db1c57d0bd1)
 
 im shaking pls by him brown contacts _/silly_
 
