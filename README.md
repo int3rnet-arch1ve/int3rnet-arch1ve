@@ -1,10 +1,10 @@
 
 ## FYI I OFTEN DONT CHAT - **EVEN WITH FRIENDS**. if i have "chat=❌" in my name = not chatting
-![Season_2_-_Jesse-removebg-preview](https://github.com/user-attachments/assets/eeeb9f81-9148-4757-a491-bbb4602eef53)
+![sorout](https://github.com/user-attachments/assets/759c732d-2b40-46a2-9863-e13e4f6d9169)
 
-someone give him brown contacts pls!!! ahhh!!! _/silly_
+look at my son auuughhhhh 😭😭😭
 
-  
+.
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
