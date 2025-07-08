@@ -10,7 +10,7 @@ im shaking pls buy him brown contacts _/silly_
 
 _you can call me jesse, fabian, cam, or indiana!_
 
-₊˚[ he/they ]˚₊
+_[ he/they ]_
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
