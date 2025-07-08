@@ -1,6 +1,7 @@
 
 ## FYI I OFTEN DONT CHAT - **EVEN WITH FRIENDS**. if i have "chat=❌" in my name = not chatting
-![sorout](https://github.com/user-attachments/assets/759c732d-2b40-46a2-9863-e13e4f6d9169)
+![sorout](https://gith![sorout2](https://github.com/user-attachments/assets/26a0313b-9a83-4818-91ab-68576ba548f8)
+
 
 look at my son auuughhhhh 😭😭😭
 
