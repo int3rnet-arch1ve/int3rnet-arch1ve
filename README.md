@@ -4,7 +4,7 @@
 
 im shaking pls buy him brown contacts _/silly_
 
-.
+![](https://komarev.com/ghpvc/?username=int3rnet-arch1ve&color=yellowgreen)
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
